@@ -1,2 +1,2 @@
-# Első nyúkmentő alapítávny
+# Első nyúlmentő alapítvány
 
